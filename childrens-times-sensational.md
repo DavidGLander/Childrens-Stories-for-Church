@@ -1,6 +1,6 @@
 # A fire-resistant balloon to represent baptism
 
-Initial inspiration: [Steve Spanglers Science](http://www.stevespanglerscience.com/lab/experiments/fire-water-balloon/?utm_source=bm23&utm_medium=email&utm_term=Image+-+Experiment+of+the+Week&utm_content=Experiment+of+the+Week+-+Fire-resistant+Balloon&utm_campaign=05/04/2016&_bta_tid=3.AIqa.CynWSQ.DjGD.Ae8MrQ..AnPVhg.b..l.CvaO.n...sFEOyQ)
+Good example of underlying science: [Steve Spanglers Science: Fireproof Balloon](http://www.stevespanglerscience.com/lab/experiments/fire-water-balloon/?utm_source=bm23&utm_medium=email&utm_term=Image+-+Experiment+of+the+Week&utm_content=Experiment+of+the+Week+-+Fire-resistant+Balloon&utm_campaign=05/04/2016&_bta_tid=3.AIqa.CynWSQ.DjGD.Ae8MrQ..AnPVhg.b..l.CvaO.n...sFEOyQ)
 
 ## Dialogue
 
