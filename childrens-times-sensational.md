@@ -1,4 +1,4 @@
-# A fire-resistant balloon to represent baptism
+ A fire-resistant balloon to represent baptism
 
 One example of underlying science: [Steve Spanglers Science: Fireproof Balloon](http://www.stevespanglerscience.com/lab/experiments/fire-water-balloon/?utm_source=bm23&utm_medium=email&utm_term=Image+-+Experiment+of+the+Week&utm_content=Experiment+of+the+Week+-+Fire-resistant+Balloon&utm_campaign=05/04/2016&_bta_tid=3.AIqa.CynWSQ.DjGD.Ae8MrQ..AnPVhg.b..l.CvaO.n...sFEOyQ)
 
@@ -14,17 +14,31 @@ So we will blow up this balloon. And we will say that it's a life.
 
 And over here we have a candle lit. And I probably don't need to tell you that balloons and flames don't mix all that well, and I almost need to apologize for using flames when we are so conscious of forest fires in this country.
 
-         So what happens when a balloon makes contact with a flame?  Anyone want to try? Are you ready for this? Not nice. Life does seem to blow up in your face sometimes doesn�t it?
-        All of us have been aware of flames in our lives. We�ve all had scares. Life can be hard. We are often conscious of ways that we can be hurt, and the risks that must be avoided.
-        So what possible difference can a bit of water or a baptism make?  
-        Why do we do it? Is it, as they used to say, fire insurance? Few of us believe in hell anymore, which was more Dante than the Bible anyway, at least apart from some of life�s experiences like Fort McMurray was, so it�s got to be more than that.
-        Well let�s put a little bit of water in this balloon, this life, and see if it makes a difference. Baptise it? We�ll blow it up, and bring it close to the flame, and see if a bit of water will make any difference. So is the water a help or does it make it riskier? Do I dare? How close can we get it? It can even touch the flame. You can see the difference a little water can make.  
-        Now it does leave a pretty black spot of soot. My life is covered with black spots from getting close to a lot of flames.
-         We�re not wanting to suggest that baptism is some magic protective skin. It�s not. It�s just a symbol. But I shouldn�t say �just a symbol. Symbols are powerful.
-         Martin Luther said during some very tough times �I am baptized. He wasn�t saying life was easy. His life was on the line, big flames even. 
-          He was saying that his God connection gave him courage and chutzpah, and energy and focus. And his baptism was a symbol of that.
-          So too a little water on a child�s head in itself isn�t much. But these children may have times in their lives when they are faced with some really hot flames & be able to say: I�m baptized. God is with me. I can do it. 
-May �God�� go with you
+So what happens when a balloon makes contact with a flame?  Anyone want to try? Are you ready for this? Not nice. Life does seem to blow up in your face sometimes doesn’t it?
+
+All of us have been aware of flames in our lives. We’ve all had scares. Life can be hard. We are often conscious of ways that we can be hurt, and the risks that must be avoided.
+
+So what possible difference can a bit of water or a baptism make?
+
+Why do we do it? Is it, as they used to say, fire insurance? Few of us believe in hell anymore, which was more Dante than the Bible anyway, at least apart from some of life’s experiences like Fort McMurray of BC, so it’s got to be more than that.
+
+Well let’s put a little bit of water in this balloon, this life, and see if it makes a difference. Baptise it? We’ll blow it up, and bring it close to the flame, and see if a bit of water will make any difference.
+
+So is the water a help or does it make it riskier? Do I dare? How close can we get it? It can even touch the flame. You can see the difference a little water can make.
+
+Now it does leave a pretty black spot of soot. My life is covered with black spots from getting close to a lot of flames.
+
+We’re not wanting to suggest that baptism is some magic protective skin. It’s not. It’s just a symbol. But I shouldn’t say “just a symbol. Symbols are powerful.
+
+Martin Luther said during some very tough times “I am baptized. He wasn’t saying life was easy. His life was on the line, big flames even. He was saying that his God connection gave him courage and chutzpah, and energy and focus. And his baptism was a symbol of that.
+
+So too, a little water on a child’s head in itself isn’t much. But these children may have times in their lives when they are faced with some really hot flames & be able to say: I’m baptized. God is with me. I can do it. 
+
+May “God”… go with you
+
+
+
+       
        
 Easter / Pentecost  The egg, bottle & candles
        We want to celebrate Affirming, inclusivity, welcoming. Ever heard those words before? Basically  to say everybody matters  which this season is about
